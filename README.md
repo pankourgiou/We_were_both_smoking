@@ -1,0 +1,2 @@
+# We_were_both_smoking
+We should quit it Anna, smoking we should quit...it's matter of health we can't be entering a class and youngsters smell the smoke you know...IF you quit it and I quit it then I'll dedicate you 20 songs---->20(TWENTY BEAUTIFUL SONGS)...It's matter of our health, public health, and your health...20 Cigarettes must become 10 then 10 5 and 5 zero. Same idea goes with Diego and Bill..10 powerfull songs dedicated to Diego Sourgiadakis if he quits smoking. 
